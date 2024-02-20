@@ -1,1 +1,1 @@
-# whatkinda.github.io
+# WHATKINDA
